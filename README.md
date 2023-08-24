@@ -1,1 +1,9 @@
-# Marlosbiel.
+-não sei
+-gosto de aprender com meus erros 
+-perfil criado para...?
+-não ligue para foto do menino ney
+-faço curso durante a tarde e a noite
+-recebo R$1600 por mes
+-sou o que mais tem dineiro na minha casa 
+-gosto de durmi
+-...
